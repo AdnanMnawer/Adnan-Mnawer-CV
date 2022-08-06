@@ -1,1 +1,0 @@
-# Adnan-Mnawer-CV
